@@ -1,1 +1,1 @@
-# mini-projects-main
+# mini-projects-maim!
